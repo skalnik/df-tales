@@ -15,3 +15,18 @@ Some more losers join the party on the 20th of Hematite.
 One dwarf sheds the name of Urist and takes up the name 'Slava'.
 
 ![](http://cloud.mikeskalnik.com/image/1H2X2a0R3e1t/Screen%20Shot%202014-08-05%20at%2012.59.39%20AM.png)
+
+Behold this fantastic cobaltite trade depot
+
+![](http://cloud.mikeskalnik.com/image/2q1l3b453E28/Screen%20Shot%202014-08-05%20at%201.21.43%20AM.png)
+
+I tell Kel Likotbemal to go cut some trees, but a tree collapses on him,
+knocking them unconcious :astonished: Perhaps if it wasn't a dwarf with
+"questionable spatial sense"
+
+![](http://cloud.mikeskalnik.com/image/1a2e0Y1x1d3P/Screen%20Shot%202014-08-05%20at%201.29.32%20AM.png)
+
+Our leader Ineth, got an office on the quiet floor below. Now he can yell at the
+dwarves better
+
+![](http://cloud.mikeskalnik.com/image/1O053y1U3A0e/Screen%20Shot%202014-08-05%20at%201.45.31%20AM.png)
