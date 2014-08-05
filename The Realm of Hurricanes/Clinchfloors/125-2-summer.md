@@ -30,3 +30,8 @@ Our leader Ineth, got an office on the quiet floor below. Now he can yell at the
 dwarves better
 
 ![](http://cloud.mikeskalnik.com/image/1O053y1U3A0e/Screen%20Shot%202014-08-05%20at%201.45.31%20AM.png)
+
+As our summer comes to an end, we begin building out some bedrooms and a digging
+out a large domitory
+
+![](http://cloud.mikeskalnik.com/image/2z371a3i0I23/Screen%20Shot%202014-08-05%20at%201.52.34%20AM.png)
